@@ -1,1 +1,1 @@
-# rsschool-cv
+  https://lankalankovna.github.io/rsschool-cv/cv
